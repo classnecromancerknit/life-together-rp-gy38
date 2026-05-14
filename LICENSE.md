@@ -1,4 +1,4 @@
-#  
+#  life together rp Script new is the best life together rp Script, featuring unlimited stamina and fly. Safe and powerful for all your needs.
 
 
 
